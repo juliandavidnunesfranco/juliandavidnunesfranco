@@ -9,7 +9,7 @@ Amante curioso de la tecnologia, con deseo constante de aprender y crecer en las
 
 Por eso no dudes en contactarme 
 
- 📲 +57 323 524 78 37 // 📲 +57 323 568 24 68
+ 📲 +57 301 621 50 48 // 📲 +57 323 568 24 68
 
 📩 juliandavidnunesfranco@hotmail.es <br/>
 📩 juliandavidnunezfranco3@gmail.com</p>
